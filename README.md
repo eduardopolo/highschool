@@ -1,1 +1,1 @@
-# l-gicadeprograma-o_python
+Algumas das atividades / exercicios que realizei na faculdade
