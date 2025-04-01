@@ -1,1 +1,1 @@
-Algumas das atividades / exercicios que realizei na faculdade
+Algumas das atividades / exercícios que realizei na faculdade
